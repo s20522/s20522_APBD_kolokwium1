@@ -1,0 +1,1 @@
+# s20522_APBD_kolokwium1
